@@ -1,4 +1,15 @@
-## Hi there 👋
+# <p align="center"> FUCK YOU</p>
+<img width="1200" height="600" alt="image" src="https://github.com/user-attachments/assets/66c81831-fefd-4711-894c-420bb803e920" />
+
+
+
+
+
+
+
+
+
+
 
 <!--
 **song236972/song236972** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
